@@ -13,6 +13,10 @@ I am a doctoral student at the Department of Political and Social Sciences at th
 
 **Work in Progress**
 
-1. Winning Transformations (with Hans Lueders)
+1. Looking on the Bright Side: Political Effects of Winning Transformations (with Hans Lueders and Eda Keremoglu)
 
 2. Economic Risk and the Heating Transition: The Electoral Politics of Asset Bans (with Martin Alberdi)
+
+3. Dimensions of Gender Equality: Unpacking Sozialization Experiences (with Hans Lueders and Eda Keremoglu)
+
+4. “Whatever you say, say nothing”: The Transmission of WWII Perpetrator Memories Across Generations (with Anna Clemente)
