@@ -6,7 +6,7 @@ I am a doctoral student at the Department of Political and Social Sciences at th
 
 **Working Papers**  
 
-1. Political Economy of Military Presence in Autocracies: Evidence from the German Democratic Republic *Under Review* 
+1. [Political Economy of Military Presence in Autocracies: Evidence from the German Democratic Republic](https://www.dropbox.com/scl/fi/6cqx6p02jvqzde5p0e5dn/WP_MilitaryBases.pdf?rlkey=12pokpvu31odpf8h1xidwq3rw&st=1cva293a&dl=0) *Under Review* 
 
 2. On Solid Footing: How Communist Legacies Facilitate Democratic Backsliding *Under Review* 
 
