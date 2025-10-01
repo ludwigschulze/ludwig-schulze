@@ -10,13 +10,13 @@ I am a doctoral student at the Department of Political and Social Sciences at th
 
 2. [On Solid Footing: How Authoritarian Legacies Facilitate the Rise of Illiberalism](https://www.dropbox.com/scl/fi/kqehp083dzkhb63qoxqy4/WP_CommunistLegacy.pdf?rlkey=prd0kkj7zwath556fqws2nkc3&st=3aqra3ug&dl=0) *Under Review* 
 
-3. Roots of Authority: The Political Consequences of Land Reform in East Germany 
+3. [Roots of Authority: The Political Consequences of Land Reform in East Germany](https://www.dropbox.com/scl/fi/4tvexccss4rkd6c0dvm55/WP_LandReform.pdf?rlkey=nguv37932qbw85g6vgnbb5104&st=dbih3ew0&dl=0) 
 
 4. Beyond the Losers: How Transformation Gains Don’t Boost Democratic Support (with Hans Lueders and Eda Keremoglu)
 
 5. Going Through The Roof: Difference-in-Differences Designs in Contexts of Natural Boundaries (with Joris Frese) *Under Review*
 
-6. The Price of Incompetence: How Policy Mismanagement Fuels a Climate Backlash (with Martín Alberdi)
+6. The Price of Incompetence: How Policy Mismanagement Fuels Climate Backlash (with Martín Alberdi)
 
 
 **Work in Progress**
