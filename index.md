@@ -3,6 +3,7 @@ layout: default
 ---
 
 I am a doctoral student at the Department of Political and Social Sciences at the [European University Institute](https://www.eui.eu/en/academic-units/political-and-social-sciences). In my work, I seek to answer the question of why citizens support authoritarian actors. Using various research designs and causal inference methods, I focus on former communist Europe and study how authoritarian actors shape attitudes towards autocracy & democracy, political conflicts and identities. This research seeks to shed light on the puzzling issue of authoritarian support. I am on the 2025/2026 Academic Job Market. 
+
 **Working Papers**  
 
 1. [Political Economy of Military Presence in Autocracies: Evidence from the German Democratic Republic](https://www.dropbox.com/scl/fi/6cqx6p02jvqzde5p0e5dn/WP_MilitaryBases.pdf?rlkey=12pokpvu31odpf8h1xidwq3rw&st=1cva293a&dl=0) *Under Review* 
