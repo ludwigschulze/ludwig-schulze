@@ -12,27 +12,27 @@ I am a doctoral student at the Department of Political and Social Sciences at th
 
 3. [Land and Freedom: The Political Consequences of Land Reform in East Germany](https://www.dropbox.com/scl/fi/4tvexccss4rkd6c0dvm55/WP_LandReform.pdf?rlkey=nguv37932qbw85g6vgnbb5104&st=xyh5mh4c&dl=0) 
 
-4. [Beyond the Losers: How Transformation Gains Don’t Boost Democratic Support](https://www.dropbox.com/scl/fi/4dqr7t2bw6yb6jfahzgea/WP_Beyond-the-Losers.pdf?rlkey=fag6ob1413tdtvpraf7fwboo0&st=ykcv3won&dl=0) (with Hans Lueders and Eda Keremoglu) *Under Review*
+4. From Peasants to Communists: How Ordinary Citizens Invest in Authoritarian Parties
 
-5. Going Through The Roof: Difference-in-Differences Designs in Contexts of Natural Boundaries (with Joris Frese) *Under Review*
+5. [Beyond the Losers: How Transformation Gains Don’t Boost Democratic Support](https://www.dropbox.com/scl/fi/4dqr7t2bw6yb6jfahzgea/WP_Beyond-the-Losers.pdf?rlkey=fag6ob1413tdtvpraf7fwboo0&st=ykcv3won&dl=0) (with Hans Lueders and Eda Keremoglu) *Under Review*
 
-6. The Price of Incompetence: How Policy Mismanagement Fuels Climate Backlash (with Martín Alberdi)
+6. Going Through The Roof: Difference-in-Differences Designs in Contexts of Natural Boundaries (with Joris Frese) *Under Review*
+
+7. The Price of Incompetence: How Policy Mismanagement Fuels Climate Backlash (with Martín Alberdi)
 
 
 **Work in Progress**
 
 1. Legacies of Fascist Cooperation and Support for Russia: Evidence from Slovakia
 
-2. Peasents into Communists: How Redistribution Strengthens Authoritarian Regime Stability in the Long Run
-
-3. Dimensions of Gender Equality: Unpacking Democratic and Communist Sozialization Experiences (with Hans Lueders and
+2. Dimensions of Gender Equality: Unpacking Democratic and Communist Sozialization Experiences (with Hans Lueders and
 Eda Keremoğlu)
 
-4. Between Guilt and Victimhood: The Political Effects of WWII Memory (with Anna Clemente and Joe Kendall)
+3. Between Guilt and Victimhood: The Political Effects of WWII Memory (with Anna Clemente and Joe Kendall)
 
-5. Memory Regimes and Attitudes toward Foreign Conflict (with Anna Clemente and Joe Kendall)
+4. Memory Regimes and Attitudes toward Foreign Conflict (with Anna Clemente and Joe Kendall)
 
-6. Who Remembers What? Scrutinizing Vertical Memory Transmission (with Anna Clemente and Joe Kendall)
+5. Who Remembers What? Scrutinizing Vertical Memory Transmission (with Anna Clemente and Joe Kendall)
 
 
 
