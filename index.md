@@ -10,9 +10,9 @@ I am a doctoral student at the Department of Political and Social Sciences at th
 
 2. [On Solid Footing: How Authoritarian Legacies Facilitate the Rise of Illiberalism](https://www.dropbox.com/scl/fi/kqehp083dzkhb63qoxqy4/WP_CommunistLegacy.pdf?rlkey=prd0kkj7zwath556fqws2nkc3&st=tnx0qjnj&dl=0) *Under Review* 
 
-3. [Land and Freedom: The Political Consequences of Land Reform in East Germany](https://www.dropbox.com/scl/fi/4tvexccss4rkd6c0dvm55/WP_LandReform.pdf?rlkey=nguv37932qbw85g6vgnbb5104&st=xyh5mh4c&dl=0) 
+3. [Land and Freedom: The Political Consequences of Land Reform in East Germany](https://www.dropbox.com/scl/fi/4tvexccss4rkd6c0dvm55/WP_LandReform.pdf?rlkey=nguv37932qbw85g6vgnbb5104&st=yz712ncn&dl=0) 
 
-4. [From Peasants to Communists: How Ordinary Citizens Invest in Authoritarian Parties](https://www.dropbox.com/scl/fi/i3ebqmbommrdb5nrv8gc1/WP_PeasantstoCommunists.pdf?rlkey=5nb5xnbqgnk2wkrwgju4aqqf8&st=xicku6w2&dl=0) 
+4. [From Peasants to Communists: How Ordinary Citizens Invest in Authoritarian Parties](https://www.dropbox.com/scl/fi/i3ebqmbommrdb5nrv8gc1/WP_PeasantstoCommunists.pdf?rlkey=5nb5xnbqgnk2wkrwgju4aqqf8&st=ykqjypmw&dl=0) 
 
 5. [Beyond the Losers: How Transformation Gains Don’t Boost Democratic Support](https://www.dropbox.com/scl/fi/4dqr7t2bw6yb6jfahzgea/WP_Beyond-the-Losers.pdf?rlkey=fag6ob1413tdtvpraf7fwboo0&st=ykcv3won&dl=0) (with Hans Lueders and Eda Keremoglu) *Under Review*
 
