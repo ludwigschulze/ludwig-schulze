@@ -20,19 +20,19 @@ I am a doctoral student at the Department of Political and Social Sciences at th
 
 7. The Price of Incompetence: How Policy Mismanagement Fuels Climate Backlash (with Martín Alberdi)
 
+8. Between Guilt and Victimhood: The Political Effects of WWII Memory (with Anna Clemente and Joe Kendall)
+
+9. Dimensions of Gender Equality: Unpacking Democratic and Communist Socialization Experiences (with Hans Lueders and
+Eda Keremoğlu)
+
 
 **Work in Progress**
 
 1. Legacies of Fascist Cooperation and Support for Russia: Evidence from Slovakia
 
-2. Dimensions of Gender Equality: Unpacking Democratic and Communist Sozialization Experiences (with Hans Lueders and
-Eda Keremoğlu)
+2. Memory Regimes and Attitudes toward Foreign Conflict (with Anna Clemente and Joe Kendall)
 
-3. Between Guilt and Victimhood: The Political Effects of WWII Memory (with Anna Clemente and Joe Kendall)
-
-4. Memory Regimes and Attitudes toward Foreign Conflict (with Anna Clemente and Joe Kendall)
-
-5. Who Remembers What? Scrutinizing Vertical Memory Transmission (with Anna Clemente and Joe Kendall)
+3. Who Remembers What? Scrutinizing Vertical Memory Transmission (with Anna Clemente and Joe Kendall)
 
 
 
