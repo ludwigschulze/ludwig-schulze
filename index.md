@@ -6,7 +6,7 @@ I am a doctoral student at the Department of Political and Social Sciences at th
 
 **Working Papers**  
 
-1. [Political Economy of Military Presence in Autocracies: Evidence from the German Democratic Republic](https://www.dropbox.com/scl/fi/6cqx6p02jvqzde5p0e5dn/WP_MilitaryBases.pdf?rlkey=12pokpvu31odpf8h1xidwq3rw&st=1cva293a&dl=0) *R&R at American Journal of Political Science* 
+1. [Political Economy of Military Presence in Autocracies: Evidence from the German Democratic Republic](https://www.dropbox.com/scl/fi/6cqx6p02jvqzde5p0e5dn/WP_MilitaryBases.pdf?rlkey=12pokpvu31odpf8h1xidwq3rw&st=1macmvl3&dl=0) *R&R at American Journal of Political Science* 
 
 2. [On Solid Footing: How Authoritarian Legacies Facilitate the Rise of Illiberalism](https://www.dropbox.com/scl/fi/kqehp083dzkhb63qoxqy4/WP_CommunistLegacy.pdf?rlkey=prd0kkj7zwath556fqws2nkc3&st=0pv557ll&dl=0) *Under Review* 
 
