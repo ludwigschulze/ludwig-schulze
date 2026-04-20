@@ -10,7 +10,7 @@ I am a doctoral student at the Department of Political and Social Sciences at th
 
 2. [On Solid Footing: How Authoritarian Legacies Facilitate the Rise of Illiberalism](https://www.dropbox.com/scl/fi/kqehp083dzkhb63qoxqy4/WP_CommunistLegacy.pdf?rlkey=prd0kkj7zwath556fqws2nkc3&st=0pv557ll&dl=0) *Under Review* 
 
-3. [Land and Freedom: The Political Consequences of Land Reform in East Germany](https://www.dropbox.com/scl/fi/4tvexccss4rkd6c0dvm55/WP_LandReform.pdf?rlkey=nguv37932qbw85g6vgnbb5104&st=yz712ncn&dl=0) 
+3. [Land and Freedom: The Political Consequences of Land Reform in East Germany](http://ssrn.com/abstract=6556881) 
 
 4. [From Peasants to Communists: How Ordinary Citizens Invest in Authoritarian Parties](https://www.dropbox.com/scl/fi/i3ebqmbommrdb5nrv8gc1/WP_PeasantstoCommunists.pdf?rlkey=5nb5xnbqgnk2wkrwgju4aqqf8&st=ykqjypmw&dl=0) 
 
