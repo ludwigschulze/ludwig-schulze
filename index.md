@@ -12,7 +12,7 @@ I am a doctoral student at the Department of Political and Social Sciences at th
 
 3. [Land and Freedom: The Political Consequences of Land Reform in East Germany](http://ssrn.com/abstract=6556881) 
 
-4. [From Peasants to Communists: How Ordinary Citizens Invest in Authoritarian Parties](https://www.dropbox.com/scl/fi/i3ebqmbommrdb5nrv8gc1/WP_PeasantstoCommunists.pdf?rlkey=5nb5xnbqgnk2wkrwgju4aqqf8&st=ykqjypmw&dl=0) 
+4. [From Peasants to Communists: How Ordinary Citizens Invest in Authoritarian Parties](http://ssrn.com/abstract=6640866) 
 
 5. [Beyond the Losers: How Transformation Gains Don’t Boost Democratic Support](https://www.dropbox.com/scl/fi/4dqr7t2bw6yb6jfahzgea/WP_Beyond-the-Losers.pdf?rlkey=fag6ob1413tdtvpraf7fwboo0&st=ykcv3won&dl=0) (with Hans Lueders and Eda Keremoglu) *Under Review*
 
