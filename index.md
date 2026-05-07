@@ -8,7 +8,7 @@ I am a doctoral student at the Department of Political and Social Sciences at th
 
 1. [Political Economy of Military Presence in Autocracies: Evidence from the German Democratic Republic](http://ssrn.com/abstract=6616158) *R&R at American Journal of Political Science* 
 
-2. [On Solid Footing: How Authoritarian Legacies Facilitate the Rise of Illiberalism](https://www.dropbox.com/scl/fi/kqehp083dzkhb63qoxqy4/WP_CommunistLegacy.pdf?rlkey=prd0kkj7zwath556fqws2nkc3&st=0pv557ll&dl=0) *Under Review* 
+2. [On Solid Footing: How Authoritarian Legacies Facilitate the Rise of Illiberalism](https://www.dropbox.com/scl/fi/kqehp083dzkhb63qoxqy4/WP_CommunistLegacy.pdf?rlkey=prd0kkj7zwath556fqws2nkc3&st=dgzrf8rt&dl=0) *Under Review* 
 
 3. [Land and Freedom: The Political Consequences of Land Reform in East Germany](http://ssrn.com/abstract=6556881) 
 
