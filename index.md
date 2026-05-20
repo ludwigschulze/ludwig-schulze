@@ -16,13 +16,11 @@ I am a doctoral student at the Department of Political and Social Sciences at th
 
 5. [Beyond the Losers: How Transformation Gains Don’t Boost Democratic Support](https://www.dropbox.com/scl/fi/4dqr7t2bw6yb6jfahzgea/WP_Beyond-the-Losers.pdf?rlkey=fag6ob1413tdtvpraf7fwboo0&st=ykcv3won&dl=0) (with Hans Lueders and Eda Keremoglu) *Under Review*
 
-6. Going Through The Roof: Difference-in-Differences Designs in Contexts of Natural Boundaries (with Joris Frese) *Under Review*
+6. The Price of Incompetence: How Policy Mismanagement Fuels Climate Backlash (with Martín Alberdi)
 
-7. The Price of Incompetence: How Policy Mismanagement Fuels Climate Backlash (with Martín Alberdi)
+7. [Committed to Memory: How History Shapes Political Attitudes and Remembrance Norms in Germany](https://www.dropbox.com/scl/fi/xjrv658hwk7fujo0s8nci/WP_Memory.pdf?rlkey=4dszv0lq9287telnbw859mtoq&st=vsxiffls&dl=0) (with Anna Clemente and Joe Kendall)
 
-8. Between Guilt and Victimhood: The Political Effects of WWII Memory (with Anna Clemente and Joe Kendall)
-
-9. Dimensions of Gender Equality: Unpacking Democratic and Communist Socialization Experiences (with Hans Lueders and
+8. Dimensions of Gender Equality: Unpacking Democratic and Communist Socialization Experiences (with Hans Lueders and
 Eda Keremoğlu)
 
 
