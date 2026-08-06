@@ -2,10 +2,6 @@
 layout: default
 ---
 
-Here's the corrected bio with the links included:
-
----
-
 I am an incoming Postdoctoral Researcher at the Centre for European Studies and Comparative Politics at [Sciences Po Paris](https://www.sciencespo.fr/centre-etudes-europeennes/en/). In my work, I seek to answer the question of why citizens support authoritarian actors. Using various research designs and causal inference methods, I focus on former communist Europe and study how authoritarian actors shape attitudes towards autocracy and democracy, political conflicts, and identities. I graduated with a PhD from the Department of Political and Social Sciences at the [European University Institute](https://www.eui.eu/en/academic-units/political-and-social-sciences) in 2026.
 
 **Working Papers**  
