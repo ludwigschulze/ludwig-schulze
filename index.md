@@ -16,7 +16,7 @@ I am a Postdoctoral Fellow at the Centre for European Studies and Comparative Po
 
 5. [Beyond the Losers: How Transformation Gains Don’t Boost Democratic Support](https://www.dropbox.com/scl/fi/4dqr7t2bw6yb6jfahzgea/WP_Beyond-the-Losers.pdf?rlkey=fag6ob1413tdtvpraf7fwboo0&st=ykcv3won&dl=0) (with Hans Lueders and Eda Keremoglu) 
 
-6. The Price of Incompetence: How Policy Mismanagement Fuels Climate Backlash (with Martín Alberdi) R&R
+6. [The Price of Incompetence: How Policy Mismanagement Fuels Climate Backlash](https://doi.org/10.31235/osf.io/28kfy_v1) (with Martín Alberdi) R&R
 
 7. [Committed to Memory: How History Shapes Political Attitudes and Remembrance Norms in Germany](https://www.dropbox.com/scl/fi/xjrv658hwk7fujo0s8nci/WP_Memory.pdf?rlkey=4dszv0lq9287telnbw859mtoq&st=vsxiffls&dl=0) (with Anna Clemente and Joe Kendall)
 
