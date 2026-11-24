@@ -30,6 +30,12 @@ Eda Keremoğlu)
 
 2. Who Remembers What? Scrutinizing Vertical Memory Transmission (with Anna Clemente and Joe Kendall)
 
+3. Cooptation or Control? Housing Allocation as a Tool of Authoritarian Control
+
+4. Elite Competition and Financial Scandal: Antisemitism in the Panama Affair of the French Third Republic (with Catarina Trindade Pereira)
+
+5. From Resistance to Mobilization: Evidence from the German Occupation of Denmark 1940-1945 (with Lasse Aaskoven and Frederik Thieme)
+
 
 
 
